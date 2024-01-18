@@ -1,0 +1,6 @@
+-  Olá, me chamo Ana Júlia
+- Estou interessada em atuar na área de desenvolvimento
+- Para contato AnaRMwork7@gmail.com ou (38) 99725-2905
+- Tenho facilidade em aprender novas tecnologias 
+- 
+- 
